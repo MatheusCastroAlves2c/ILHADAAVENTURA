@@ -5,7 +5,7 @@ Repositório da Ilha-da-Aventura
 
 Sejam Bem vindos 
 
-![](https://tenor.com/pt-BR/view/venya-cat-silly-cat-nerd-cat-gif-3321945477525870266)
+![](https://media1.tenor.com/m/evOjo3SiS1sAAAAd/cat-blink.gif)
 
 Contato e-mail 📧 00001109860559sp@al.educacao.sp.gov.br
 
